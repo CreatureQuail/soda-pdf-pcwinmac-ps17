@@ -1,4 +1,4 @@
-# 
+# Elite Soda PDF plugins para Mac OS | Leve Soda PDF plugins para PC Windows. Com depósito direto e atualizações em tempo real — otimizado para máximo desempenho em cada plataforma.
 
 
 
